@@ -1,4 +1,4 @@
-#  
+#  easter tap simulator exclusive Scripts is the best easter tap simulator Script, featuring auto-heal and auto-collect. Safe and powerful for all your
 
 
 
